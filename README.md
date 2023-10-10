@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dillinw96
-- 👀 I’m interested in working for the Canadaian Government 
+- 👀 I’m interested in working in Cybersecurity
 - 🌱 I’m currently learning CyberSecurity at UofT
 - 💞️ I’m looking to collaborate on Skills related to CyberSecurity
 - 📫 How to reach me Dillinw@hotmail.com
